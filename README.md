@@ -1,0 +1,1 @@
+# pontodotrabalhador-ionic
